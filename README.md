@@ -67,4 +67,4 @@ Para más información sobre FutbolTech, visita nuestra [página de contacto](/_
 
 ---
 
-© 2024 FutbolTech. Todos los derechos reservados.
+© 2025 FutbolTech. Todos los derechos reservados.
